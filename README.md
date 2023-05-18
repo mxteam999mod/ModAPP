@@ -11,3 +11,6 @@ https://apkadmin.com/xaopq7l5d81l/InShot_1.922.1401.apk.html
 
 Download Picsart Mod👇
 https://apkadmin.com/1i8cydbbahrn/Picsart_22.1.2.apk.html
+
+Download CapCut Mod👇
+https://apkadmin.com/eros3b5uwe9i/Capcut-mod-apk-v8.3.0-Mx.apk.html
