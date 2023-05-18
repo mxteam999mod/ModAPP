@@ -8,3 +8,6 @@ https://apkadmin.com/u33wqhwajkat/remini_v3.7.208.202195110-mx.apk.html
 
 Download InShot Mod👇
 https://apkadmin.com/xaopq7l5d81l/InShot_1.922.1401.apk.html
+
+Download Picsart Mod👇
+https://apkadmin.com/1i8cydbbahrn/Picsart_22.1.2.apk.html
