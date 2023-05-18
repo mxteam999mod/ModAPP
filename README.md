@@ -14,3 +14,6 @@ https://apkadmin.com/1i8cydbbahrn/Picsart_22.1.2.apk.html
 
 Download CapCut Mod👇
 https://apkadmin.com/eros3b5uwe9i/Capcut-mod-apk-v8.3.0-Mx.apk.html
+
+Download Photoshop ps Mod👇
+https://apkadmin.com/k1ces0345klz/Photoshop_Express-Premium-v9.3.58_build_1221-Mod-armeabi-v7a.apk.html
