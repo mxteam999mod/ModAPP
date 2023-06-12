@@ -5,7 +5,7 @@ https://apkadmin.com/1hmdwce7ussp/VSCO_MX.MOD999.apk.html
 
 _
 Dwnload Lghtroom Mod👇
-https://apkadmin.com/7ej016j3d0yj/Lightroom_8.3.3.apk.html
+https://apkadmin.com/krpeb6ah482h/Lightroom_8.3.3_MX.apk.html
 
 _
 Download Remini Mod👇
